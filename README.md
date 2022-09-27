@@ -67,4 +67,4 @@ No matter what your scores are 3cheapcreditscores.com, always remember to check 
 
 Remember, your credit rating isn’t set in stone – it’s a living, breathing thing that can change daily – for example, as the information on your credit report changes or as time passes. So, it can go up or down over time.
 
-Experian has the USA’s best free credit score – so you know you’ll be in safe hands seeing where you stand when it comes to getting credit.
+Experian has the USA’s best free credit score – so you know you’ll be in safe hands seeing where you stand when it comes to getting credit
